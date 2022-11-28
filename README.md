@@ -1,3 +1,3 @@
-Chacrit Poonpipit
-653450507-9
-chacrit.p@kkumail.com
+Chacrit Poonpipit <br/>
+653450507-9 <br/>
+chacrit.p@kkumail.com <br/>
